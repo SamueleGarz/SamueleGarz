@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @SamueleGarz
 - 👀 My main hobbies are plaing video games, role playing games and hiking.
-- 💞️ I’m looking to collaborate on everything I can, since I need experience to get jobs to help my family pay for the university
 - 📫 How to reach me: the best way is at my email address, samuelegarzon02@gmail.com
 
 <!---
